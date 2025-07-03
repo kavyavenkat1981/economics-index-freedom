@@ -1,0 +1,1 @@
+# economics-index-freedom
